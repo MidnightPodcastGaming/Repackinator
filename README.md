@@ -1,3 +1,34 @@
+https://1drv.ms/v/c/8659e6226093f1d8/EcRMHedjHoxLo_Yk6Cai2tMBIQVYnqj0MUZAhUs_PZGX-g?e=85SKik
+See link bro. You will clearly see. There HAS to be a way to make it one file. A way to stop it from splitting. As you can see, the option for not splitting does not work when selected. Also, PLEASE, if you can remove the list limitation that would be SO incredible. I'm not a coder or developer, but surely we can convert any CCIs without the need to be tied to a list. Also, do note, that CCIs are legit the ONLY go to for ripping games for the OG XBOX. XISO/HDD folders have been abolished due to a tremendous amount of games black screening upon getting into them. CCI is GOD!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! Not a single issue with them. The fact there are not more CCI converters out there is insane. You people are THE ONLY ones that have it. So excuse me for coming off as a fucking dick, I'm just VERY passionate guys. That's all.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <div align="center">
 
 # Team Resurgent Presents, Repackinator
